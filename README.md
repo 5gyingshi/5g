@@ -1,1 +1,1 @@
-# 5g
+http://www.kjzf.vip/
